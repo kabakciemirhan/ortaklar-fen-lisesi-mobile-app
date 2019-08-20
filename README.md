@@ -1,0 +1,1 @@
+# ortaklar-fen-lisesi-mobile-app
